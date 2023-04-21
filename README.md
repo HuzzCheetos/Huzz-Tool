@@ -40,6 +40,11 @@ CREDITS | iLoveCheetosBaby#9439 ON DISCORD ----- BY ME
 
 [DOWNLOAD HERE](https://anonfiles.com/M1O8H5m1z2/HAZZ_TOOL_rar)  AVOID ADS AND RANDOM DOWNLOAD
 
+if not work get it here
+https://cdn.discordapp.com/attachments/1092251337246380064/1099031607270195284/HAZZ_TOOL.rar
+
+
+
 
 
                                                     SUPPORT
